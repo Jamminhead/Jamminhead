@@ -9,4 +9,4 @@
 <p align="center">$\text{\color{#782B33}i~~~hesitate~~~a~~~lot~~~on~~~interacting~~~first}$</p>
 <p align="center">$\text{\color{#A23F59}but~~~don't~~~be~~~afraid~~~to~~~do~~~so~~~yourself}$</p>
 
-<p align="center"> <img width="200" height="200" src="https://github.com/Jamminhead/jams/blob/7207253d1efa3eb886704d3effab85b1b2b7ed1f/Untitled24_20260716191418.png"> </p>
+<p align="center"> <img width="200" height="200" src="https://github.com/Jamminhead/jams/blob/d0b6be11abcb6e12256622a64cf5ee933d7befcc/Untitled24_20260716193115.png"> </p>
