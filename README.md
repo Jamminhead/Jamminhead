@@ -7,4 +7,4 @@
 <p align="center"><img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> </p>
 <p align="center">$\text{\color{#7B4344}c⑅h~~~any~~~enc~~~if~~~in~~~name}$</p> <p align="center">$\text{\color{#A23F59}otherwise~~~ask~~~if~~~ok~~~/ᐠ • ˕ =マ~Ⳋ}$</p>
 <p align="center">$\text{\color{#782B33}i~~~hesitate~~~a~~~lot~~~on~~~interacting~~~first}$</p>
-<p align="center">$\text{\color{#7B4344}but~~~don't~~~be~~~afraid~~~to~~~do~~~so~~~yourself}$</p>
+<p align="center">$\text{\color{#A23F59}but~~~don't~~~be~~~afraid~~~to~~~do~~~so~~~yourself}$</p>
