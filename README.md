@@ -7,7 +7,7 @@
 <p align="center"><img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> </p>
 <p align="center">$\text{\color{#7B4344}c⑅h~~~αnყ~~~enc~~~ıf~~~ın~~~nαme}$</p> <p align="center">$\text{\color{#A23F59}otherwıse~~~αsk~~~ıf~~~ok~~~/ᐠ • ˕ =マ~Ⳋ}$</p>
 <p align="center"> <img width="20" height="20" src="https://github.com/Jamminhead/jams/blob/0972fb06d2abde738ab02493c146ec5e19450f4c/Tumblr_l_145232683358117.gif"> $\text{\color{#782B33}ı~~~hesıtate~~~α~~~lot~~~on~~~ınterαcting~~~fırst}$</p>
-<p align="center">$\text{\color{#A23F59}but~~~don't~~~be~~~αfrαıd~~~to~~~do~~~so~~~ყourself !}$</p>
+<p align="center">$\text{\color{#A23F59}but~~~don't~~~be~~~αfrαıd~~~to~~~do~~~so~~~ყourself !}$> <img width="20" height="20" src="https://github.com/Jamminhead/jams/blob/d75ae15a7e67af88034b298a4b0a36fdf49104dd/Tumblr_l_145902283440003.gif"></p>
 
 <p align="center"> <img width="200" height="200" src="https://github.com/Jamminhead/jams/blob/d0b6be11abcb6e12256622a64cf5ee933d7befcc/Untitled24_20260716193115.png"> </p>
 <p align="center">$\text{\color{#A23F59}𝄞~~see~~~me~~~αt~~~mcყt~~~or}$</p>
