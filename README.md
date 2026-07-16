@@ -11,6 +11,6 @@
 
 <p align="center"> <img width="200" height="200" src="https://github.com/Jamminhead/jams/blob/d0b6be11abcb6e12256622a64cf5ee933d7befcc/Untitled24_20260716193115.png"> </p>
 <p align="center">$\text{\color{#A23F59}𝄞~~see~~~me~~~αt~~~mcყt~~~or}$</p>
-<p align="center">$\text{\color{#782B33} αnywhere~~~wıth~~~my~~~friends}$</p>
-<p align="center">$\text{\color{#7B4344}strıctly~~~no~~~steαlıng}$</p>
+<p align="center">$\text{\color{#782B33} αnywhere~~~wıth~~~mყ~~~friends}$</p>
+<p align="center">$\text{\color{#7B4344}strıctlყ~~~no~~~steαlıng}$</p>
 <p align="center">$\text{\color{#782B33}or~~~uploαdıng~~~my~~~skıns~~~anყwhere.}$</p>
