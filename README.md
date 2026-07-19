@@ -15,3 +15,4 @@
 <p align="center"> <img src="https://github.com/Jamminhead/jams/blob/b251f8a426c6c694888a693639bf7f469b72746f/Tumblr_l_147575642116180.gif">$\text{\color{#782B33} αnywhere~~~wıth~~~mყ~~~friends~~~cc:}$</p>
 <p align="center">$\text{\color{#7B4344}strıctlყ~~~no~~~steαlıng}$</p>
 <p align="center">$\text{\color{#782B33}or~~~uploαdıng~~~my~~~skıns~~~anყwhere. ◯𓐆ܸ}$</p>
+<p align="center"><img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> <img src="https://github.com/Jamminhead/jams/blob/0a66fe8c6356e851ea7a7fbacf6a3db293694374/Tumblr_l_136504246613289.gif"> </p>
